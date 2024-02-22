@@ -1,0 +1,1 @@
+# for-the-furniture-company-diploma-project
